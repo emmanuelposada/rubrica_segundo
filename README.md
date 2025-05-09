@@ -1,1 +1,0 @@
-# rubrica_segundo
